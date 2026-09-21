@@ -6,3 +6,6 @@
  3.-me gusta gundam 
 
  mi meta es graduarme para poder estudiar en la universidad y conseguir una carrera que apolle la muebleria 
+
+
+a mi tambien me gusta el pay de limon att: Aldo
